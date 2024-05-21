@@ -1,0 +1,2 @@
+# ihatecoding
+TRYING TO COMPILE MY FNF MOD SUCKS
